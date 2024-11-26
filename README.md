@@ -1,3 +1,1 @@
-14y/o
-
-interested in fractals
+See ultrogmr.github.io
